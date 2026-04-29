@@ -1,6 +1,6 @@
 # Hi, I'm Gabi! 🎀
 
-I have been in the Customer Experience field for over seven years and have been developing programming skills since 2025. I am currently focused on Web Development, and my goals for 2026 are to start building a portfolio online.
+I have been in the Customer Experience field for over seven years and have been developing programming skills since 2025. I am currently focused on Web Development, and my goal for 2026 is to start building an online portfolio.
 
 ## 🧰 What You'll Find Here
 
